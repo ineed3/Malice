@@ -9,5 +9,5 @@ nn, o app nn tem nenhum **vírus presente**. vc pode verificar no **VirusTotal**
 # responsabilidade
 **caso** vc **fizer** algo com **alguém** q se **relacione** a **stalking** e a pessoa descobrir, não venha me culpando. no momento que vc abaixar e começar a fazer algo, a responsabilidade é sua e não minha **caso** dê **merda**.
 
-- **cry community**
+- **cry**
 - © **2022-2026** **todos os direitos reservados**.
